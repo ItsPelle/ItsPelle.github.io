@@ -1,4 +1,4 @@
-# ItsPelle.github.io
+# ItsPelle
 
 ## Songs Made
 - Pelle has dropped two songs so far one being his first "Mtoto Hapendi Pombe" and the other named "BadMan". All songs are ready available on YouTube, Spotify and other Streaming Platforms.
