@@ -9,6 +9,7 @@ Spotify: [Listen music on Spotify](https://open.spotify.com/artist/69iLjET0HxbBu
 
 
 #### Contact Info
+- Email: pellekhajid69@gmail.com
 - [Send me an email](mailto:pellekhajid69@gmail.com)
 - [Call me](tel:0114556976)
 - [Follow me on Twitter](https://x.com/Jabalandke?s=09)
